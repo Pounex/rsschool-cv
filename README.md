@@ -1,1 +1,1 @@
-https://Pounex.github.io/rsschool-cv/cv
+https://Pounex.github.io/rsschool-cv/
